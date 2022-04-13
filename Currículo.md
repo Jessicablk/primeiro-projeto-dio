@@ -12,7 +12,7 @@
 
 #### Qualificações
 
-*Apresento boa comunicação, facilidade no trabalho em equipe, amabilidade e eficiência no atendimento ao público, iniciativa, rapidez na aprendizagem, dedicação e ordem buscando o máximo de eficiência ao executar as tarefas. Tenho excelente digitação e conhecimento de informática em nível de usuária.*
+*Apresento boa comunicação, facilidade no trabalho em equipe, amabilidade e eficiência no atendimento ao público, iniciativa, rapidez na aprendizagem, dedicação e ordem buscando o máximo de eficiência ao executar as tarefas. Tenho excelente digitação.
 
 #### Formação Acadêmica 
 
