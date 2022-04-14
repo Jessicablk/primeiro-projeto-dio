@@ -1,6 +1,6 @@
 ##                                Jéssica Guimarães Cordeiro
+![eu1](https://user-images.githubusercontent.com/102877425/163320391-af47f7e1-2db1-4b09-970f-a876fbdd6e9a.png)
 
-![](C:\Users\Jéssica Cordeiro\AppData\Roaming\Typora\typora-user-images\image-20220413143056705.png)
 
 
 
