@@ -1,2 +1,2 @@
 # primeiro-projeto-dio
-Primeiro Projeto DIO
+Meu Currículo
